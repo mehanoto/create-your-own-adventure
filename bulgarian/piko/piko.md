@@ -1,0 +1,1 @@
+v kraina smetka izpulvash mechtata si da stanesh batman ot piko i amfeti
