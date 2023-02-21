@@ -1,7 +1,6 @@
 Алексиев зоби яко. Тодор му бие инжекцията в задника.
 Какво би направил, ако видиш Алексиев, Тодор и Приятелката на Тодор на едно място?
 Можеш да продължиш историята по надолу.
-
 1. Искаш автограф от Тодор Jivkov prez 1984 godina, dokato toi si kupuva banichki ot mestnata banicharnica do ulica Jabokrek.
 
 2. Целуваm приятелката му i bqgam dalech w prostranstwoto na zelenite polqni i rozovite dyrveta s letqshti bonboni i blizalki, dokato skacham ot oblak na oblak
